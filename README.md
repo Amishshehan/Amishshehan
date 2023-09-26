@@ -1,4 +1,4 @@
 Hi there, I'm Amish Shehan 👋
 
-I'm a Undergraduage student at SLIIT
+I'm a Fresh graduate student at SLIIT
 
